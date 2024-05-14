@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Zorza88
+- 👋 Hi, I’m Olena @Zorza88
 - 👀 I’m interested in learning of ecovillagies for 16+, psychological resilience without ezoteric practices, digital detox, medicinal plants
 - 🌱 I’m currently learning Carbon compensation and the role of nature-based solutions 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on resilience and responcible consumption 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
